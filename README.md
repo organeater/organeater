@@ -1,1 +1,2 @@
-## wip. lwk let me figure tis out real quick
+![](https://github.com/organeater/organeater/blob/main/%F0%9D%92%9E%20%CB%B3.png?raw=true)
+
