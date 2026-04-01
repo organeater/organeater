@@ -5,5 +5,3 @@
   
 ⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀       [rentry](https://rentry.co/jesterpenetrate) [discord](https://discord.com/users/688180872175943681)
 <p align="center"> (dont be scared to friend me or dm me!! might respond or add back depends on my mood that day)
-
-![](https://github.com/organeater/organeater/blob/cfd1a6e394da7d83cf69532a150df8cac44b2276/Untitled178_20260326180101.webp) 
